@@ -1,3 +1,4 @@
 # Resume
 
-[Resume  .pdf](https://github.com/vidhi9696/Resume/files/14063367/Resume.pdf)
+
+[resume (2).pdf](https://github.com/vidhi9696/Resume/files/14129615/resume.2.pdf)
